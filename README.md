@@ -1,16 +1,15 @@
 <img align="right" alt="Coding" width="400" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXc0eGZrY254dXlmazA5MGx3dGs1eTFsYWRtaWl1bjcyMzU4enZpbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/b8AIy2HJzPog8/giphy.gif">
 <img align="right" alt="Coding" width="400" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXZxdWk3YjI2dXc5MW5udHY3Mmd0b2x3N2RwMnU2eWhmdDdlYXRnMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nV5l2SFsU93ckaWlyn/giphy.gif">
-<img align="right" alt="Coding" width="400" src="https://www.deviantart.com/wh1pst1ckag0st0p/art/MCR-Bullets-CD-1046850847"><!--
-**l4rryreiss/l4rryreiss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_"Veio dos rios, veio da **fonte**,
+da **rubra** escarpa da montanha,
+do sol, que todo me envolvia
+em outonais clarões dourados;
+e dos relâmpagos **vermelhos**
+que o **céu** inteiro incendiavam;
+e do trovão, da **tempestade**,
+daquela nuvem que se alterava,
+só, no amplo azul do céu puríssimo,
+como um **demônio**, ante meus olhos."_
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
