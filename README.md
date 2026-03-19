@@ -13,6 +13,11 @@
  - **Sobre mim:** Meu nome é Larry. Tenho 16 anos e atualmente curso informática no campus Patrocínio e estou no 2º do ensino médio. Tenho interesse pelas áreas de programação, humanas e artes. ^_^
 
 
+##  ╰┈➤ SOC1ALS :
+   **- Email:
+   - Instagram:
+   - Twitter:**
+
 
  
  _**"Pater noster**,                                                                                                   
