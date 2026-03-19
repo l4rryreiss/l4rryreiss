@@ -4,7 +4,7 @@
 
 
 
-##  ╰┈➤ 1NFOS :  ִֶָ. ..﹒🦇﹒𓂃 ࣪: ִֶָ་࿐
+##  ╰┈➤ 1NFOS :  ִֶָ
  - **Nome**: Larry Reis
  - **Pronomes:** ele/elu/ela
  - **Curso:** Informática integrado ao ensino médio pelo IFTM.
@@ -14,9 +14,10 @@
 
 
 ##  ╰┈➤ SOC1ALS :
-   **- Email:
-   - Instagram:
-   - Twitter:**
+   
+   - **Gmail:** larrymiaumiau@gmail.com
+   - **Twitter:** @larrymiaumiau
+   - **Instagram:** @l4rrymiaumiau
 
 
  
