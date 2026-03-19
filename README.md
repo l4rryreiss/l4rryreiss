@@ -13,7 +13,7 @@ sed libera nos a malo. **Amen"**._
 
 
 
-##  ╰┈➤ 1NFORMAÇÕES SOBRE M1M:  ִֶָ. ..𓂃 ࣪: ִֶָ་༘࿐
+##  ╰┈➤ 1NFOS :  ִֶָ. ..𓂃 ࣪: ִֶָ་༘࿐
  - **Nome**: Larry Reis
  - **Curso:** Informática integrado ao ensino médio pelo IFTM.
  - **Campus:** Patrocínio
