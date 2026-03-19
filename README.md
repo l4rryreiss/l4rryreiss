@@ -1,5 +1,6 @@
 <img align="right" alt="Coding" width="400" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXc0eGZrY254dXlmazA5MGx3dGs1eTFsYWRtaWl1bjcyMzU4enZpbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/b8AIy2HJzPog8/giphy.gif">
-<!--
+<img align="right" alt="Coding" width="400" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXZxdWk3YjI2dXc5MW5udHY3Mmd0b2x3N2RwMnU2eWhmdDdlYXRnMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nV5l2SFsU93ckaWlyn/giphy.gif">
+<img align="right" alt="Coding" width="400" src="https://www.deviantart.com/wh1pst1ckag0st0p/art/MCR-Bullets-CD-1046850847"><!--
 **l4rryreiss/l4rryreiss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
