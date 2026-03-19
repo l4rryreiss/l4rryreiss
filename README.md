@@ -8,8 +8,9 @@
  que o céu inteiro incendiavam;
  e do trovão, da tempestade,
  daquela nuvem que se alterava,
- só, no amplo azul do céu puríssimo,
- como um demônio, ante meus olhos. "
+ só, no amplo azul do 
+ céu puríssimo, como um demônio, 
+ ante meus olhos. "
 
 
 
