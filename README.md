@@ -1,4 +1,4 @@
-## Hi there 👋
+<img align="right" alt="Coding" width="400" src="[coloque o link aqui](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXc0eGZrY254dXlmazA5MGx3dGs1eTFsYWRtaWl1bjcyMzU4enZpbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/b8AIy2HJzPog8/giphy.gif)">
 
 <!--
 **l4rryreiss/l4rryreiss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
