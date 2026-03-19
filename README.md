@@ -1,3 +1,7 @@
+
+
+<img width="750" height="311" alt="image" src="https://github.com/user-attachments/assets/93778d0f-420e-4d74-a5d3-70edfac98634" />
+
 _**"Pater noster**,                                                                                                   
 qui es in caelis:                                                                    
 sanctificétur nomen tuum;                                                           
@@ -8,10 +12,6 @@ et dimítte nobis débita nostra,
 sicut et nos dimíttimus debitóribus nostris;  
 et ne nos inducas in tentatiónem;  
 sed libera nos a malo. **Amen"**._
-
-<img width="750" height="311" alt="image" src="https://github.com/user-attachments/assets/93778d0f-420e-4d74-a5d3-70edfac98634" />
-
-
 
 ##  ╰┈➤ 1NFOS :  ִֶָ. ..𓂃 ࣪: ִֶָ་༘࿐
  - **Nome**: Larry Reis
