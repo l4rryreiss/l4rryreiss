@@ -2,8 +2,6 @@
 
 <img width="750" height="311" alt="image" src="https://github.com/user-attachments/assets/93778d0f-420e-4d74-a5d3-70edfac98634" />
 
-<img align="right" alt="Coding" width="400" src="https://woomagazine.com.br/nosferatu-1922-o-horror-esta-la-fora/">
-
 ##  ╰┈➤ 1NFOS :  ִֶָ
  - **Nome**: Larry Reis
  - **Pronomes:** ele/elu/ela
@@ -18,9 +16,8 @@
    - **Gmail:** larrymiaumiau@gmail.com
    - **Twitter:** @larrymiaumiau
    - **Instagram:** @l4rrymiaumiau
-
-
- 
+   - 
+ <a href="https://x.com/larrymiaumiau" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg" alt="" height="30" width="40"/></a>
 
 
 
