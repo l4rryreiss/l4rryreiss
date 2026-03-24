@@ -2,7 +2,7 @@
 
 <img width="750" height="311" alt="image" src="https://github.com/user-attachments/assets/93778d0f-420e-4d74-a5d3-70edfac98634" />
 
-
+<img align="right" alt="Coding" width="400" src="https://woomagazine.com.br/nosferatu-1922-o-horror-esta-la-fora/">
 
 ##  ╰┈➤ 1NFOS :  ִֶָ
  - **Nome**: Larry Reis
