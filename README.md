@@ -2,7 +2,7 @@
 
 <img alt="Cinematic_Apresenta3Fo_Velisar" width="1919" src="https://github.com/user-attachments/assets/ac0e45bd-e522-4af6-a474-a8381597a1ae">
 
-##  ╰┈➤ 1NFOS :  ִֶָ
+##  ╰┈➤ ***1NFOS :***  ִֶָ
 
  - ***Sobre mim:*** Meu nome é ***Larry***. Tenho ***16*** anos e atualmente curso ***informática*** no ***Campus Patrocínio*** e estou no ***2º do ensino médio***. Tenho ***interesse*** pelas áreas de ***programação***, ***humanas*** e ***artes***. ^_^
  - ***Gmail:*** larrymiaumiau@gmail.com
