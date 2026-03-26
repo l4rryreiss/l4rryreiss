@@ -1,6 +1,4 @@
-
-
-<img width="750" height="311" alt="image" src="https://github.com/user-attachments/assets/93778d0f-420e-4d74-a5d3-70edfac98634" />
+<img alt="Cinematic_Apresenta3Fo_Velisar" width="1919" src="https://github.com/user-attachments/assets/ac0e45bd-e522-4af6-a474-a8381597a1ae">
 
 ##  ╰┈➤ 1NFOS :  ִֶָ
 
