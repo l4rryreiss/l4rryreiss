@@ -6,7 +6,7 @@
 #  ╰┈➤ ***1NFOS :***  ִֶָ☣︎  
 ▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄𖤐▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄
 
- ꩜ ***Sobre mim:*** Meu nome é ***Larry***. Tenho ***16*** anos e atualmente curso ***informática*** no ***Campus Patrocínio*** e estou no ***2º do ensino médio***. Tenho ***interesse*** pelas áreas de ***programação***, ***humanas*** e ***artes***. ^_^  
+ ꩜ ***Sobre mim:*** Meu nome é ***Larry César***, tenho 16, estudo faço T.I no IFTM e é isso. :P  
  
  ꩜ ***Carreira:*** Tenho dúvidas se seguirei ou não na área de T.I, mas caso eu decida trilhar meu futuro com a informática, seguirei no ramo de programação. Também tenho interesse no curso de letras, história e música.  
 
