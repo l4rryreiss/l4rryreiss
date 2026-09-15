@@ -8,8 +8,6 @@
 
  ꩜ ***Sobre mim:*** Meu nome é ***Larry César***, tenho 16, estudo faço T.I no IFTM e eu vou fazer jornalismo.
 
- ꩜ ***Contato:***   
- 
     - Gmail:larrymiaumiau@gmail.com
     - Discord: larryisdead
 
