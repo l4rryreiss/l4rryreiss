@@ -1,4 +1,4 @@
-<img width="775" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" />
+<img width="795" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" />
 
 
 
