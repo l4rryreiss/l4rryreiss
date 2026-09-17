@@ -18,3 +18,6 @@ Estudo no IFTM e faço  curso técnico de î̵̢̨͇̜̘̩̊̎̄͆̄n̴̛̈́̾͘
 </h3>
 🥩 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・(˵◝ ⩊  ◜˵マ <br>
 <img width="810" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" />
+<p align="center">
+--- - .- .-. .. --- / ---... ...-- / -- .. .- ..- / -- .. .- ..-
+</p>
