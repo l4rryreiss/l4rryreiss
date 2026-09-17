@@ -1,6 +1,7 @@
 ***⛧ “O sol não me queima mais”***    . ..𓂃 ࣪ ִֶָ🦇་༘࿐ ▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄**𖤐**▀‎▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄𓂃**☦︎**໒꒰ྀིっ˕ -｡꒱ྀི১๋࣭🩸
 
-<img alt="Cinematic_Apresenta3Fo_Velisar" width="1919" src="https://github.com/user-attachments/assets/ac0e45bd-e522-4af6-a474-a8381597a1ae">
+<img alt="<img width="375" height="211" alt="image" src="https://github.com/user-attachments/assets/399361aa-690d-4b3b-8881-46ea723e4fef" />
+">
 
 ▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄𖤐▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄
 #  ╰┈➤ ***1NFOS :***  ִֶָ☣︎  
