@@ -15,4 +15,4 @@
 
 Meu nome é **ɹɐséƆ ʎɹɹɐ˥** eu tenho **∫₁^(√x) (t · ln(t² + 1)) / (t² + 1) dt = (ln²(17) - ln²(2)) / 4** anos. <br>
 Estudo no IFTM e faço  curso técnico de î̵̢̨͇̜̘̩̊̎̄͆̄ņ̴̛̰͖͕͎̈́̾̔̋̌͘̕͜f̸̡̨̨̥̱̜̙͆̂̋̊̽͐͌͐̃͘o̸̧̡͍̮̫̥̝̖̙̱͐̐̍̿̂͠ȓ̷̮̟͓͕̮̓̓̌́͐̋̐͝ͅḿ̶̱̺̤̳̯͔͚̬̽̏̊́̏̉͘͜á̸̪̀͐ṭ̴̈́̈̈̒̽̄̋̐̏͛į̶̗̤̱͂̐ͅć̴̢̢̣̦͕͔̍a̵͈̘͇̰̘̓͌̈́̀̉̄̉͗̎̐ͅ. Eu vou fazer jornalismo. 🦄 
-Eu gosto de música, de arte e de ler. ^_^
+
