@@ -1,4 +1,4 @@
-<img width="810" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" />
+<img width="810" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" /> <br>
 🥩 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・(˵◝ ⩊  ◜˵マ
 <p align="center">
   <img width="600" height="338" alt="mais gif do jon que eu espero que funcione" src="https://github.com/user-attachments/assets/72f3891f-a978-4929-bf5e-9606b3a61e3c" />
