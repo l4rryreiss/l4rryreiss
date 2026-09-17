@@ -17,4 +17,5 @@
 Estudo no IFTM e faço  curso técnico de î̵̢̨͇̜̘̩̊̎̄͆̄ņ̴̛̰͖͕͎̈́̾̔̋̌͘̕͜f̸̡̨̨̥̱̜̙͆̂̋̊̽͐͌͐̃͘o̸̧̡͍̮̫̥̝̖̙̱͐̐̍̿̂͠ȓ̷̮̟͓͕̮̓̓̌́͐̋̐͝ͅḿ̶̱̺̤̳̯͔͚̬̽̏̊́̏̉͘͜á̸̪̀͐ṭ̴̈́̈̈̒̽̄̋̐̏͛į̶̗̤̱͂̐ͅć̴̢̢̣̦͕͔̍a̵͈̘͇̰̘̓͌̈́̀̉̄̉͗̎̐ͅ. Eu vou fazer jornalismo. 𓏵‧₊┊💗<br>
 </h3>
 <br>
+<img width="432" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/24a95391-e169-421b-8a0b-5490f9b013b0" />
 
