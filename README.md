@@ -1,4 +1,5 @@
-<img width="150" height="20" alt="color ibis paint" src="https://github.com/user-attachments/assets/14802a3f-9131-4254-be33-13ade3a35601" />
+<img width="600" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" />
+
 
 
 🥩 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・(˵◝ ⩊  ◜˵マ
