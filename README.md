@@ -16,6 +16,5 @@
  🎀 ˚‧︵‿ .. Meu nome é ɹɐséƆ ʎɹɹɐ˥ eu tenho **∫₁^(√x) (t · ln(t² + 1)) / (t² + 1) dt = (ln²(17) - ln²(2)) / 4** anos. ૮ ྀིᴗ͈ . ᴗ͈ ྀིა < br>
 Estudo no IFTM e faço  curso técnico de î̵̢̨͇̜̘̩̊̎̄͆̄ņ̴̛̰͖͕͎̈́̾̔̋̌͘̕͜f̸̡̨̨̥̱̜̙͆̂̋̊̽͐͌͐̃͘o̸̧̡͍̮̫̥̝̖̙̱͐̐̍̿̂͠ȓ̷̮̟͓͕̮̓̓̌́͐̋̐͝ͅḿ̶̱̺̤̳̯͔͚̬̽̏̊́̏̉͘͜á̸̪̀͐ṭ̴̈́̈̈̒̽̄̋̐̏͛į̶̗̤̱͂̐ͅć̴̢̢̣̦͕͔̍a̵͈̘͇̰̘̓͌̈́̀̉̄̉͗̎̐ͅ. Eu vou fazer jornalismo. 𓏵‧₊┊💗<br>
 </h3>
-<br>
 🥩 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・(˵◝ ⩊  ◜˵マ <br>
 <img width="810" height="25" alt="arcoiris" src="https://github.com/user-attachments/assets/a0e96386-c730-48d4-be3d-03f13d8f4739" />
