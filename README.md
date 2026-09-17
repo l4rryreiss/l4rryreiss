@@ -1,7 +1,6 @@
 ***⛧ “O sol não me queima mais”***    . ..𓂃 ࣪ ִֶָ🦇་༘࿐ ▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄**𖤐**▀‎▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄𓂃**☦︎**໒꒰ྀིっ˕ -｡꒱ྀི১๋࣭🩸
 
-<img alt="<img width="375" height="211" src="https://github.com/user-attachments/assets/399361aa-690d-4b3b-8881-46ea723e4fef" />
-">
+"<img width="375" height="211" src="https://github.com/user-attachments/assets/399361aa-690d-4b3b-8881-46ea723e4fef" />
 
 ▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄𖤐▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄
 #  ╰┈➤ ***1NFOS :***  ִֶָ☣︎  
