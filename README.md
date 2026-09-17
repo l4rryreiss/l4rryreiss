@@ -1,4 +1,5 @@
-<img width="578" height="134" alt="welcome" src="https://github.com/user-attachments/assets/8e89585c-2085-4fd8-b8cb-4390cfcc7f76" />
+<img width="150" height="20" alt="color ibis paint" src="https://github.com/user-attachments/assets/14802a3f-9131-4254-be33-13ade3a35601" />
+
 
 🥩 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・(˵◝ ⩊  ◜˵マ
 <p align="center">
