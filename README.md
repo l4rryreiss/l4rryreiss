@@ -1,8 +1,7 @@
 ***⛧ “O sol não me queima mais”***    . ..𓂃 ࣪ ִֶָ🦇་༘࿐ ▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄**𖤐**▀‎▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄𓂃**☦︎**໒꒰ྀིっ˕ -｡꒱ྀི১๋࣭🩸
 
 
-<img width="375" height="211" alt="image" src="https://github.com/user-attachments/assets/5cacff7b-df8e-424b-bf78-f06c89993347" />
-
+<img width="600" height="338" alt="mais gif do jon que eu espero que funcione" src="https://github.com/user-attachments/assets/a36bbce0-436d-4790-95bc-41e3ac6d8e4f" />
 
 ▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀‎‎▄▀▄‎▀▄▀▄𖤐▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄▀▄▀▄▀‎▄▀▄▀▄
 #  ╰┈➤ ***1NFOS :***  ִֶָ☣︎  
