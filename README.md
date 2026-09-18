@@ -17,6 +17,7 @@
  🎀 ˚‧︵‿ .. Meu nome é ɹɐséƆ ʎɹɹɐ˥ eu tenho **∫₁^(√x) (t · ln(t² + 1)) / (t² + 1) dt = (ln²(17) - ln²(2)) / 4** anos. ૮ ྀིᴗ͈ . ᴗ͈ ྀིა 
 Estudo no IFTM e faço  curso técnico de î̵̢̨͇̜̘̩̊̎̄͆̄ņ̴̛̰͖͕͎̈́̾̔̋̌͘̕͜f̸̡̨̨̥̱̜̙͆̂̋̊̽͐͌͐̃͘o̸̧̡͍̮̫̥̝̖̙̱͐̐̍̿̂͠ȓ̷̮̟͓͕̮̓̓̌́͐̋̐͝ͅḿ̶̱̺̤̳̯͔͚̬̽̏̊́̏̉͘͜á̸̪̀͐ṭ̴̈́̈̈̒̽̄̋̐̏͛į̶̗̤̱͂̐ͅć̴̢̢̣̦͕͔̍a̵͈̘͇̰̘̓͌̈́̀̉̄̉͗̎̐ͅ. Eu vou fazer jornalismo. 𓏵‧₊┊💗<br>
 </h3>
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/5KEgpWJL4oTtDtvb8lDucv?utm_source=generator&si=929c3d0eafac4e13" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 🥩 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・(˵◝ ⩊  ◜˵マ <br>
 <img width="993" height="50" alt="pink" src="https://github.com/user-attachments/assets/a28d60ac-fede-4021-90be-f64ec16e3a53" />
 <p align="center">
